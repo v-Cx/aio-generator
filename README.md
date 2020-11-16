@@ -30,20 +30,12 @@ Currently available modules
 ![enter image description here](https://i.ibb.co/30WHcyv/resim-2020-11-09-202948.png)
 
 
-## Professional Modules (Free)
+## Al Modules
 
  1. Netflix Gift Card Generator
  2. MalwareByte ID & Key Generator
  3. MalwareByte Only Key Generator
-
-## Professional Modules (Paid)
-
- 1. Amazon Generator ( Pattern Type: XXXX-XXXXXX-XXXX) [Module - 1]
- 2. Amazon Generator ( Pattern Type: XXXX-XXXXXX-XXXXX) [Module - 2]
- 3. Special  **Gift Card, Activation Keys**  and  **Codes Generator**
-
-
-## [View Packages](https://shoppy.gg/@DarkHia/groups/6oruvmW)
-
-## [Buy](https://shoppy.gg/product/O8mMBBP)
+ 4. Amazon Generator ( Pattern Type: XXXX-XXXXXX-XXXX) [Module - 1]
+ 5. Amazon Generator ( Pattern Type: XXXX-XXXXXX-XXXXX) [Module - 2]
+ 6. Special  **Gift Card, Activation Keys**  and  **Codes Generator**
 
